@@ -62,8 +62,8 @@ Watch International Bombing Method <a href="https://youtu.be/JqsHkyIcnPM">here</
 
 # CONTRIBUTORS
 <br><br>
-[*]  SpeedX<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[-] Mail At: ggspeedx29@gmail.com  <br>
+[*]  Atabey27<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[-] Mail At: ggAtabey2729@gmail.com  <br>
 [*]  The Black Hacker Roxstar<br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[-] Ping At: http://wa.me/917600140353 <br>
 [*]  Rieltar<br>
@@ -73,10 +73,10 @@ Watch International Bombing Method <a href="https://youtu.be/JqsHkyIcnPM">here</
 
 # CONTACT
 For Any Queries Join Us On WhatsApp!!!
-          Group Link: http://bit.do/speedxgit
-  <a href="http://bit.do/speedxgit">Join My Group</a>
+          Group Link: http://bit.do/Atabey27git
+  <a href="http://bit.do/Atabey27git">Join My Group</a>
 
-           Mail: ggspeedx29@gmail.com
+           Mail: ggAtabey2729@gmail.com
 
            YouTube Channel: https://www.youtube.com/c/GyanaTech
   <a href="https://www.youtube.com/c/GyanaTech">Check My Channel</a>
